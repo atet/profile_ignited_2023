@@ -1,6 +1,6 @@
-# [2023 Ignited Education Learning Community![external-link-alt-solid_58a6ff_16px](.img/external-link-alt-solid_58a6ff_16px.png)](https://join.igniteducation.org/cyber/get-involved)
+# [2023 Ignited Education Learning Community![external-link-alt-solid_58a6ff_16px](.img/external-link-alt-solid_58a6ff_16px.png)](https://www.igniteducation.org/teachers/learning-community/)
 
-### September 21, 2023:</br>Demystifying Careers in Industry: Bioinformatics
+### September 21, 2023</br>Demystifying Careers in Industry: Bioinformatics
 
 ---
 
